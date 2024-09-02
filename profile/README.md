@@ -15,4 +15,4 @@ Quer ajudar a expandir nossa galeria? Veja como você pode contribuir:
 - 🧑‍🏫 **Ajuda do Professor**: Se precisar de ajuda, não hesite em falar com o professor durante o horário de dúvidas.
 
 ## 🍿 Curiosidades
-Você sabia que a maioria dos nossos alunos adora começar o dia com uma tigela de cereal? Alguns preferem frutas, enquanto outros não dispensam um pãozinho quente. Nosso combustível para a criatividade começa no café da manhã!
+Você sabia que a maioria dos nossos alunos adora a Hatsune Miku!!!!
